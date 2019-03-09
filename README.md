@@ -1,2 +1,0 @@
-# English
-daily learning
